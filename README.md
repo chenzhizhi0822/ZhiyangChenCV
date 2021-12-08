@@ -7,3 +7,4 @@ Certificate of College student’s innovation and entrepreneurship project, BUPT
 
 Certificate of MIT machine learning, 2021
 ![ZHIYANG CHEN MIT certificate](https://user-images.githubusercontent.com/58174623/140875210-e4b1b1a5-e767-49f1-a596-afbdc479d54e.png)
+![MIT中方证书](https://user-images.githubusercontent.com/58174623/145193932-e3c81368-42d8-4445-8f41-dcd720b37ac4.jpg)
