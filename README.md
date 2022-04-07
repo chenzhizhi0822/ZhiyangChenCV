@@ -10,4 +10,4 @@ Certificate of MIT machine learning, 2021
 ![MIT中方证书](https://user-images.githubusercontent.com/58174623/145195924-fe760a9b-b64d-4dd8-82ec-6a2d5dc8b281.jpg)
 
 Internship Certificate of China Academy of Inforrmation and Commonication Technology
-[实习证明-陈志扬.pdf](https://github.com/chenzhizhi0822/ZhiyangChen_CV/files/8442758/-.pdf)
+![实习证明-陈志扬](https://user-images.githubusercontent.com/58174623/162197866-818863a1-c4e5-49d9-aaff-08d9ceba8de1.jpg)
