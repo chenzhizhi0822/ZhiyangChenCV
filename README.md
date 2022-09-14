@@ -20,3 +20,9 @@
 ### MCM Certificate, 2022
 <img width="794" alt="image" src="https://user-images.githubusercontent.com/58174623/167097307-4f188234-8eb7-4f13-b310-0f15317765fb.png">
 
+### Certificate of College student’s innovation and entrepreneurship project, BUPT, 2022
+![fa7ca83d0d5dcd499f83d930a4688cc](https://user-images.githubusercontent.com/58174623/190051702-031834eb-b3e8-4649-babb-a5e18c3268bd.jpg)
+
+### IELTS Transcript
+![1215eb68a623e43a3a45c5f97503012](https://user-images.githubusercontent.com/58174623/190051798-bf8a6e7d-836b-4249-9693-2d6749687448.jpg)
+
