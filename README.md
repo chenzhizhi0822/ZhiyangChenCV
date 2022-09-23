@@ -12,6 +12,10 @@
 ### Certificate of Cross-Border E-commerce, 2022
 <img width="1240" alt="电商" src="https://user-images.githubusercontent.com/58174623/170473502-4bfa5830-f46f-4fd5-a3b2-4ce655cfb435.png">
 
+### Certificate of Service Outsourcing Competition, 2022
+![20ba353d0679fb74abcdb48c5e3451e](https://user-images.githubusercontent.com/58174623/191955340-daf0dde0-2322-4ccf-ba94-629e00e55f8f.jpg)
+![c2179b33fcdceae13bbdc593da24ece](https://user-images.githubusercontent.com/58174623/191955350-a57bd1e8-4ae7-4602-9cb4-63e06569d9a6.jpg)
+
 
 ### Internship Certificate of China Academy of Inforrmation and Commonication Technology, 2022
 ![实习证明-陈志扬](https://user-images.githubusercontent.com/58174623/162197866-818863a1-c4e5-49d9-aaff-08d9ceba8de1.jpg)
