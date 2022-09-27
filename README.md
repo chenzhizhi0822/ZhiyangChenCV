@@ -1,5 +1,6 @@
 # ZhiyangChenCV
 - Here you can see some certificates about the CV of me.
+- You can find more projects and codes in other repositories.
 
 
 ### Certificate of College student’s innovation and entrepreneurship project, BUPT, 2021
